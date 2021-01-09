@@ -1,0 +1,2 @@
+The onset of chilly winters remind me of a warm, indulgent cup of delicious spiced hot chocolate which doesn’t only render your fingertips warm but warms your soul- quite literally. As soon as there is a drop in mercury, I get this guilty craving for this spiced hot chocolate and everyone in my family loves it as well!
+Smooth and balanced flavors of chocolate combined with a variety of spices will be nothing less than a warm embrace for you, one that you’ll keep on going back to.
